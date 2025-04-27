@@ -1,1 +1,1 @@
-# mav: jarvis, but for the office
+What's Bruin? - LA Hacks 2025
