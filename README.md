@@ -1,1 +1,2 @@
-What's Bruin? - LA Hacks 2025
+[_What's Bruin?_](https://whatsbruin.co) - LA Hacks 2025
+
